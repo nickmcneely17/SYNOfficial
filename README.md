@@ -1,0 +1,2 @@
+# SYNOfficial
+WE ARE INFERNOS
